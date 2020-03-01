@@ -1,0 +1,2 @@
+# omerexinstahack
+İNSTAGRAM CALMAK ARTIK COK BASİT LEN AQ
